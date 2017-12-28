@@ -1,12 +1,16 @@
 # Kia-Ora-Ehoa
-my Hello World with abit of maori
 
-Ko Lisa ahau
+
 Ko Tararua te Maunga
 Ko Horowhenua...
 
-Ko Papa
+Ko Rex McGregor taku Papa
+
 Ko Ngati Raukawa
 Ko Takihiku
+
+Ko Patricia McGregor taku Mama
+
+Ko Lisa ahau
 
 Kereru  Koputaroa..  Punahau..
