@@ -1,8 +1,5 @@
 # Kia-Ora-Ehoa
 
-my Hello World with abit of maori
-
-
 
 Ko Tararua te Maunga
 Ko Horowhenua...
