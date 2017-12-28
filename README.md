@@ -3,7 +3,7 @@
 
 Ko Tararua tōku maunga ....is my mountain
 
-Ko Hokoi tōku awa ...is my river
+Ko Hokio tōku awa ...is my river
 
 Ko Tainui tōku waka …..is my canoe
 
