@@ -4,10 +4,12 @@
 Ko Tararua te Maunga
 Ko Horowhenua...
 
-Ko Papa
+Ko Rex McGregor taku Papa
+
 Ko Ngati Raukawa
 Ko Takihiku
 
+Ko Patricia McGregor taku Mama
 
 Ko Lisa ahau
 
